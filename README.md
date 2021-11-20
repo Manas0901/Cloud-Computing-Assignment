@@ -1,1 +1,1 @@
-# Dayquote
+# LOL
